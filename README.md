@@ -21,5 +21,5 @@ I worked on a project and developed a water quality predictor for the lakes of K
       
 - 😄 Pronouns: She/Her
 
-- ⚡ Fun fact: I love invent recepies with the leftover food and creating traditional madubani paintings. And also I am huge fan of Lord of the Rings.
+- ⚡ Fun fact: I love to invent recepies with the leftover food and creating traditional madhubani paintings. And also I am huge fan of Lord of the Rings.
 -->
