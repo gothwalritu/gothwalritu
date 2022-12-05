@@ -15,7 +15,7 @@ I worked on a project and developed a water quality predictor for the lakes of K
 
 - 🤔 I’m looking for help with job hunting and interview preparation.
 
-- 💬 Ask me about water quality and antibiotic resistance in environmental bacteria...  I know its quite intriguing.
+- 💬 Ask me about anything related to water quality and antibiotic resistance in environmental bacteria...  I know its quite intriguing.
 
 - 📫 How to reach me: www.linkedin.com/in/ritugothwal
       
