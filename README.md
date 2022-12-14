@@ -17,7 +17,7 @@ I worked on a project and developed a water quality predictor for the lakes of K
 
 - 💬 Ask me about anything related to water quality and antibiotic resistance in environmental bacteria...  I know its quite intriguing.
 
-- 📫 How to reach me: www.linkedin.com/in/ritugothwal
+- 📫 How to reach me: email- gothwalritu@gmail.com and linkedin - www.linkedin.com/in/ritugothwal 
       
 - 😄 Pronouns: She/Her
 
